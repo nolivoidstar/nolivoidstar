@@ -3,7 +3,7 @@
 ![](https://github.com/nolivoidstar/nolivoidstar/blob/a68be99614c21ae5d5e0672451a528853f2f58fd/lmao.png)
 <h5 align="center"
   
-**$${\color{orange}"Sorry... \ Got \ a \ bit \ carried \ away \ there."}$$**
+**$${\color{orange}"And- \ Sorry... \ Got \ a \ little \ carried \ away \ there."}$$**
 <h5 align="center"
 
  ✿ ✿ ✿
